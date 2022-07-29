@@ -4,4 +4,4 @@
 Created By Parrot
 If you need help join the discord
 
-# Discord: https://discord.gg/C9QUQ6fX8M
+# Discord: https://discord.gg/mC28YHdYTk
